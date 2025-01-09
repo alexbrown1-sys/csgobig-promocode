@@ -1,4 +1,4 @@
-# csgobig-promocode
+# CSGOBig Affiliate Code "CSGOBETTINGS" for 5% Deposit Bonus and 3 Free Cases
 Step into the vibrant world of CSGOBig, where the stakes are high and the rewards even higher. As a dedicated platform for Counter-Strike: Global Offensive (CS:GO) enthusiasts, CSGOBig merges the excitement of gaming with the thrill of betting. Armed with the **CSGOBig affiliate code "CSGOBETTINGS"**, new members can kickstart their journey with a 5% deposit bonus and three free cases. This introductory guide will walk you through the platform, highlighting its features, benefits, and how you can maximize your chances of winning.
 
 **What is CSGOBig?**
